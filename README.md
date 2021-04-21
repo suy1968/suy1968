@@ -7,5 +7,6 @@ I am a very curious fellow when it comes to explore and try out new skills. Deve
 - 🔭 I’m currently working on various types of data based techniques and libraries.
 - 🌱 I’m currently learning new techniques to develop some intresting interfaces to intract with data.
 - 📫 How to reach me: Suyashpratap9453@gmail.com
-- ⚡ Fun fact: 
--->
+
+Connect With Me:-
+- https://www.kaggle.com/suyashpratapsingh
