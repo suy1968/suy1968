@@ -11,13 +11,3 @@ I am a very curious fellow when it comes to explore and try out new skills. Deve
 Connect With Me:-
 - https://www.kaggle.com/suyashpratapsingh
 
-Connect with me:
-Anirudh | KaggleKaggle
-
-Anirudh | YouTubeYouTube
-
-Anirudh | TwitterTwitter
-
-Anirudh | LinkedInLinkedIn
-
-Anirudh | InstagramInstagram
