@@ -14,4 +14,5 @@ Connect With Me:-
 - https://www.youtube.com/channel/UCFrZmq1xg4kOaHTlemCYDuQ
 - https://www.linkedin.com/in/suyash-pratap-singh-722039182/
 - https://zaap.bio/suyash9453
+- https://linktr.ee/suyashpratap
 
